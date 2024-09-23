@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @JustGhost101
+- 👋 Hi, I’m Damon
 - 👀 I’m interested in Web and Discord Development.
 - 📫 How to reach me? Via E-Mail, or Discord.
 - 😄 Pronouns: He/Him
